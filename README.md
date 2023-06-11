@@ -1,4 +1,4 @@
-# かにさんかに鍋な🦀
+# ズワイガニ
 
 <!--
 **Kawasan47/Kawasan47** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
